@@ -6,6 +6,8 @@ https://github.com/roodriiigooo/PWNAGOTCHI-CUSTOM-FACES-MOD
 
 ![Kitty](https://github.com/user-attachments/assets/c2f0b077-95f2-48a1-8aad-345b1c6a8343)
 
+![Kitty2](https://github.com/user-attachments/assets/cd3b2461-42bc-4442-8012-a51cd3494cdf)
+
 # ENJOY!!! if you have any issues find and @ me in the pwnagotchi unofficial discord: https://discord.gg/wBgZPn6M
 
 # If you want to give me a tip i accept monero:
